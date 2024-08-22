@@ -1,4 +1,4 @@
-  ## Product Name –[ManUP Gummies Australia](https://www.facebook.com/ManUp.ME.Gummies.Australia/)
+  ## Product Name –ManUP Gummies Australia 
   ## Ratings: - 4.8/5.0 ★★★★☆
   ## Availability & Price – Visit Official Website
   ## Side-Effects-NA
